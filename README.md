@@ -5,7 +5,7 @@
 
 ## Team Members
 
-🦸
+🦸 Nicolette Hagen
 🦹
 
 ## 🎓 Learning Objectives
